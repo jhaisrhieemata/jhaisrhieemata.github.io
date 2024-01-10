@@ -1,1 +1,0 @@
-# jhaisrhieemata.github.io
